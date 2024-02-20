@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Fernando Stemposki🏳
+- 👀 I’m interested in sports
+- ![](https://media1.tenor.com/m/Z3MLscFkWMgAAAAd/goat.gif)
